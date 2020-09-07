@@ -23,7 +23,7 @@ e-mail: **anaborki@gmail.com**
 **My achievements:**
 1st place in the online challenge Scratchathome/EPAM in 2020. Category: Experienced Scratcher
 
-**My English**
+**My English:**
 A1 level
 
 **Academic education:**
